@@ -1,7 +1,6 @@
 <p align="center"><img width="240" height="51" alt="tumblr_b0032a1799f6a1845e292a685f605161_a43fa1ec_250" src="https://github.com/user-attachments/assets/b31ae165-223f-43ca-ad2d-0ee889ecd6bb" />
 </p>
 <p align="center">hi im vivi! theythem eng esp <img width="18" height="15" alt="tumblr_8e0c7d219a75f5b02c411b74cb16ebf9_3df027f5_75" src="https://github.com/user-attachments/assets/30590dd7-d57f-46ae-bbfa-be277b9bb945" /> </p>
-<p align= "center"> i like hetalia and music #Ok? i draw and play guitar </p>
   <p align= "center">c + h is always welcome ; w2i i am mostly likely off tab thaaaanks
 </p>
 <p align="center">BTW I AM VERY SHY!!!!! IF I DONT RESPOND ITS NOT BECUS IM IGNORING YOU #OKOK PLEASE B PATIENT WITH ME ≧ ﹏ ≦</p>
@@ -16,4 +15,3 @@
   </a></p>
 <p align="center">𓏲(=‸=)</p>
 <p align="center"><img width="240" height="60" alt="tumblr_eebd937c6e6ee71765e55dc4c653bc44_ea2a5608_250" src="https://github.com/user-attachments/assets/3437cc37-b0b6-4fbc-9caa-4798c9e653fc" /></p>
-
