@@ -1,6 +1,6 @@
 <p align="center"><img width="240" height="51" alt="tumblr_b0032a1799f6a1845e292a685f605161_a43fa1ec_250" src="https://github.com/user-attachments/assets/b31ae165-223f-43ca-ad2d-0ee889ecd6bb" />
 </p>
-<p align="center">hi im amia aka vivi (you can use whatever name) theythem eng esp <img width="18" height="15" alt="tumblr_8e0c7d219a75f5b02c411b74cb16ebf9_3df027f5_75" src="https://github.com/user-attachments/assets/30590dd7-d57f-46ae-bbfa-be277b9bb945" /> </p>
+<p align="center">hi welcome!!! theythem eng esp <img width="18" height="15" alt="tumblr_8e0c7d219a75f5b02c411b74cb16ebf9_3df027f5_75" src="https://github.com/user-attachments/assets/30590dd7-d57f-46ae-bbfa-be277b9bb945" /> </p>
   <p align= "center">c + h is always welcome ; w2i i am mostly likely off tab thaaaanks
 </p>
 <p align="center">BTW I AM VERY SHY!!!!! IF I DONT RESPOND ITS NOT BECUS IM IGNORING YOU #OKOK PLEASE B PATIENT WITH ME ≧ ﹏ ≦</p>
